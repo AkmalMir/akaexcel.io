@@ -1,1 +1,1 @@
-# akaexcel.io
+# akaexcel.uz
